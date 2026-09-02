@@ -1,5 +1,5 @@
 <div align="center">  
-<img width="400" height="400" alt="loki" src="https://iili.io/nHGrBdN.gif" />
+<img width="498" height="318" alt="loki" src="https://iili.io/nHGrBdN.gif" />
   </div>
   <div align="center">
 
