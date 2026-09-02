@@ -3,7 +3,10 @@
   </div>
   <div align="center">
 
+<div align="center">
 nyaaa ^__^
+</div>
+<div align="center">
 go follow my main ≽(•⩊ •マ≼
 </div>
 
