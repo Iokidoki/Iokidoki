@@ -4,12 +4,8 @@
   <div align="center">
 
 <div align="center">
-nyaaa ^__^
+<sup> nyaaa ^__^ </sup>
 </div>
 <div align="center">
-go follow my main ≽(•⩊ •マ≼
-</div>
-
-<div align="center">
-<sup> credits: me ^__^ </sup>
+<sup> go follow my main ≽(•⩊ •マ≼ </sup>
 </div>
