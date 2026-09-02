@@ -3,10 +3,8 @@
   </div>
   <div align="center">
 
-[guns](https://guns.lol/danonation)
-[listography](https://listography.com/pupdexter)
-[ata](https://tokidoki.atabook.org)
-[strawpage](https://pupdexter.straw.page)
+nyaaa ^__^
+go follow my main ≽(•⩊ •マ≼
 </div>
 
 <div align="center">
