@@ -1,6 +1,6 @@
-
-![](https://komarev.com/ghpvc/?username=iokidoki&color=#0630D&label=views)
-
+<div align="center">  
+![](https://komarev.com/ghpvc/?username=iokidoki&color=50630D&label=views)
+  </div>
 <div align="center">  
 <img width="498" height="318" alt="loki" src="https://iili.io/nHGrBdN.gif" />
   </div>
